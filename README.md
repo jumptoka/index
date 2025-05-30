@@ -86,8 +86,7 @@ Viele unserer Teilnehmer befinden sich in finanziell herausfordernden Situatione
 - **Spendenkonto:**  
 CH93 8080 8004 8451 4231 9
 
-![VERMA Einzahlungen071](https://github.com/user-attachments/assets/48012a65-c500-4c26-92da-a45837c0d4bf)
-
+![image](https://github.com/user-attachments/assets/980836a9-5685-4d61-9d7d-b5dcc22aba9e)
 
 
 Mit deiner Unterstützung trägst du dazu bei, langfristig auch Kosten im Gesundheitswesen zu senken und den Betroffenen einen nachhaltigen Neuanfang zu ermöglichen.
